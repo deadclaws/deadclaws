@@ -1,12 +1,12 @@
-<img align="left" src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-07-01_142613774.png">
+<img align="left" src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-07-03_085003385.png">
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
 <p align="left">
-ㅤㅤㅤㅤㅤ $${\color{#69556B}cam}$$ $${\color{#806677}or}$$ $${\color{#937981}logan}$$ $${\color{#A78E89}♡}$$ $${\color{#BAA191}he}$$ </br>
+ㅤㅤㅤㅤㅤ $${\color{#a3674b}cam}$$ $${\color{#4d7c73}or}$$ $${\color{#b19d68}logan}$$ $${\color{#4d7c73}♡}$$ $${\color{#4d7c73}he}$$ </br>
 
-ㅤㅤㅤ $${\color{#69556B}hellfire,}$$ $${\color{#806677}hellfire}$$ $${\color{#937981}take}$$ $${\color{#A78E89}my}$$ $${\color{#BAA191}soul}$$ $${\color{#BAA191},}$$ </br>
-ㅤㅤ $${\color{#69556B}i'm}$$ $${\color{#806677}waitin,}$$ $${\color{#937981}waitin,}$$ $${\color{#937981}i'm}$$ $${\color{#A78E89}ready}$$ $${\color{#BAA191}to}$$ $${\color{#BAA191}go}$$ </br>
+ㅤㅤㅤ $${\color{#a3674b}hellfire,}$$ $${\color{#a3674b}hellfire}$$ $${\color{#a3674b}take}$$ $${\color{#a3674b}my}$$ $${\color{#b19d68}soul}$$ $${\color{#4d7c73},}$$ </br>
+ㅤ $${\color{#4d7c73},}$$ $${\color{#b19d68}i'm}$$ $${\color{#b19d68}waitin,}$$ $${\color{#b19d68}waitin,}$$ $${\color{#b19d68}i'm}$$ $${\color{#b19d68}ready}$$ $${\color{#b19d68}to}$$ $${\color{#a3674b}go}$$ </br>
 ㅤㅤㅤㅤㅤ <a href= "https://github.com/Iove-birds">main</a> ㅤ <a href= "https://rentry.co/cmeo">rentry</a> ㅤ <a href= "https://pronouns.cc/@ahri">prns.cc</a> </br>
 </p>
