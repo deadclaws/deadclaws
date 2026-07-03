@@ -8,5 +8,5 @@
 
 ㅤㅤㅤ $${\color{#a3674b}hellfire,}$$ $${\color{#a3674b}hellfire}$$ $${\color{#a3674b}take}$$ $${\color{#a3674b}my}$$ $${\color{#b19d68}soul}$$ $${\color{#4d7c73},}$$ </br>
 ㅤ $${\color{#4d7c73},}$$ $${\color{#b19d68}i'm}$$ $${\color{#b19d68}waitin,}$$ $${\color{#b19d68}waitin,}$$ $${\color{#b19d68}i'm}$$ $${\color{#b19d68}ready}$$ $${\color{#b19d68}to}$$ $${\color{#a3674b}go}$$ </br>
-ㅤㅤㅤㅤㅤ <a href= "https://github.com/Iove-birds">main</a> ㅤ <a href= "https://rentry.co/cmeo">rentry</a> ㅤ <a href= "https://pronouns.cc/@ahri">prns.cc</a> </br>
+ㅤㅤㅤㅤㅤ <a href= "https://github.com/Iove-birds">main</a> ㅤ <a href= "https://rentry.co/cmeo">rentry</a> ㅤ <a href= "https://set.atabook.org">ata</a> </br>
 </p>
